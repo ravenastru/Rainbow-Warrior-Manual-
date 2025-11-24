@@ -3264,22 +3264,31 @@ The sovereign peace that liberates mankind.
 *SUPER CONSCIOUSNESS - SUN SPIRIT - ART*
 
 UNIVERSE - Translucent - universal     - ETERNITY      - life love
+
 GALAXCY  - Transparent - galactic      - INFINITY      - family love
+
 SUN      - White       - solar         - LOVE          - soul love
 
 *CONSCIUOSNESS - MOON MIND - SONG*
 
 MERCURY  - Purple      - soul          - CONSCIOUSNESS - intuition
+
 VENUS    - Blue        - etheric       - ELECTRICITY   - sound
+
 EARTH    - Green       - spiritual     - AIR           - sight
+
 MARS     - Yellow      - mental        - FIRE          - smell
+
 JUPITER  - orange      - emotional     - WATER         - taste
+
 SATURN   - red         - physical      - EARTH         - touch
 
 *SUB CONSCIOUSNESS - EARTH BODY - DANCE*
 
 URANUS   - grey       - instictual    - ANIMAL         - instinct
+
 NEPTUNE  - brown      - vital         - PLANT          - vitality
+
 BACCUS   - black      - core          - MINERAL        - center
 
 *** ****** ***
