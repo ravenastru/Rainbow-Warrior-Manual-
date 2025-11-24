@@ -29,7 +29,7 @@ He is the central engine of the Cosmic Clock, the unwavering authority that cast
 The Grandfather principle provides the constant frequency of Resonance against which all of our actions—our inner light—are measured.
 
 The Purpose of the Child
-And so, we—Humanity, the Child, the Moon—are born onto the Land of the Grandmother, beneath the boundless ceiling of the Father, having emerged from the flowing waters of the Mother, all while revolving under the unwavering light of the Grandfather.
+And so, we Humanity, the Child, the Moon, the consciuosness — are born onto the Land of the Grandmother, beneath the boundless ceiling of the Father, having emerged from the flowing waters of the Mother, all while revolving under the unwavering light of the Grandfather.
 
 Our singular purpose is to act as the Emotional and Mental Learning Self. 
 We revolve around our Grand Mother (Subconscious/Earth) and reflect the light of our Grand Father/(Super Conscious/Sun). 
