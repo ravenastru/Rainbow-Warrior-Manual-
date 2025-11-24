@@ -3264,38 +3264,38 @@ The sovereign peace that liberates mankind.
 *SUPER CONSCIOUSNESS - SUN SPIRIT - ART*
 
 
-UNIVERSE - Translucent - universal     - ETERNITY      - life love
+|UNIVERSE | Translucent | universal     | ETERNITY      | life love | 
 
-GALAXCY  - Transparent - galactic      - INFINITY      - family love
+|GALAXCY  | Transparent | galactic      | INFINITY      | family love |
 
-SUN      - White       - solar         - LOVE          - soul love
+|SUN       | White       |solar         | LOVE           | soul love |
 
-
+|--- | --- | --- | --- | --- |
 
 *CONSCIUOSNESS - MOON MIND - SONG*
 
 
-MERCURY  - Purple      - soul          - CONSCIOUSNESS - intuition
+| MERCURY  | Purple      | soul          | CONSCIOUSNESS | intuition |
 
-VENUS    - Blue        - etheric       - ELECTRICITY   - sound
+| VENUS    | Blue        | etheric       | ELECTRICITY   | sound |
 
-EARTH    - Green       - spiritual     - AIR           - sight
+| EARTH    | Green       | spiritual     | AIR           | sight |
 
-MARS     - Yellow      - mental        - FIRE          - smell
+| MARS     | Yellow      | mental        | FIRE          | smell |
 
-JUPITER  - orange      - emotional     - WATER         - taste
+| JUPITER  | Orange      | emotional     | WATER         | taste |
 
-SATURN   - red         - physical      - EARTH         - touch
+| SATURN   | red         | physical     |  EARTH         | touch |
 
-
+| --- | --- | --- | --- | --- |
 
 *SUB CONSCIOUSNESS - EARTH BODY - DANCE*
 
 
-URANUS   - grey       - instictual    - ANIMAL         - instinct
+| URANUS   | grey       | instictual    | ANIMAL         | instinct |
 
-NEPTUNE  - brown      - vital         - PLANT          - vitality
+| NEPTUNE  | brown      | vital         | PLANT          | vitality |
 
-BACCUS   - black      - core          - MINERAL        - center
+| BACCUS   | black      | core          | MINERAL        | center |
 
-*** ****** ***
+| --- | --- | --- | --- | --- |
