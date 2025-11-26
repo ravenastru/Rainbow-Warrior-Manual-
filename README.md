@@ -3294,6 +3294,8 @@ The sovereign peace that liberates mankind.
 
 | URANUS   | grey       | instictual    | ANIMAL         | instinct |
 
+| --- | --- | ~~~ | --- | --- |
+
 | NEPTUNE  | brown      | vital         | PLANT          | vitality |
 
 | BACCUS   | black      | core          | MINERAL        | center |
