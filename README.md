@@ -3292,10 +3292,8 @@ The sovereign peace that liberates mankind.
 *SUB CONSCIOUSNESS - EARTH BODY - DANCE*
 
 
-| URANUS   | grey       | instictual    | ANIMAL         | instinct |
+| URANUS   | grey       | animal    | ANIMAL         | instinct |
 
-| --- | --- | ~~~ | --- | --- |
+| NEPTUNE  | brown      | plant     | OCEAN          | vitality |
 
-| NEPTUNE  | brown      | vital         | PLANT          | vitality |
-
-| BACCUS   | black      | core          | MINERAL        | center |
+| BACCUS   | black      | mineral  |  LAND        | center |
