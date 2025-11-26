@@ -3297,5 +3297,3 @@ The sovereign peace that liberates mankind.
 | NEPTUNE  | brown      | vital         | PLANT          | vitality |
 
 | BACCUS   | black      | core          | MINERAL        | center |
-
-| --- | --- | --- | --- | --- |
