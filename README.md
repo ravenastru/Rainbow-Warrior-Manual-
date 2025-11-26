@@ -3292,7 +3292,7 @@ The sovereign peace that liberates mankind.
 *SUB CONSCIOUSNESS - EARTH BODY - DANCE*
 
 
-| URANUS   | grey       | animal    | ANIMAL         | instinct |
+| URANUS   | grey       | animal    | SKY         | instinct |
 
 | NEPTUNE  | brown      | plant     | OCEAN          | vitality |
 
