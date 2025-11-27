@@ -3277,7 +3277,7 @@ The sovereign peace that liberates mankind.
 
 | MERCURY  | Purple      | soul          | CONSCIOUSNESS | intuition |
 
-| VENUS    | Blue        | etheric       | ELECTRICITY   | sound |
+| VENUS    | Blue        | etheric       | ELECTRICITY   | hearing |
 
 | EARTH    | Green       | spiritual     | AIR           | sight |
 
@@ -3294,6 +3294,6 @@ The sovereign peace that liberates mankind.
 
 | URANUS   | grey       | animal    | SKY         | instinct |
 
-| NEPTUNE  | brown      | plant     | OCEAN          | vitality |
+| NEPTUNE  | brown      | plant     | OCEAN       | vitality |
 
-| BACCUS   | black      | mineral  |  LAND        | center |
+| BACCUS   | black      | mineral  |  LAND        | core |
